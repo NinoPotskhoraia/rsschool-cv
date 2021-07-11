@@ -17,3 +17,15 @@
 * Doctor's Assistant, New Hospitals, Tbilisi, 10/2018 - 03/2021
 * Nurse, Kutaisi Central Hospital, Kutaisi, 08/2016 - 07/2018
 * Volunteer, Public Hospital, Tbilisi, 05/2016 - 08/2016
+
+## Skills
+* Good command of English Language (B2)
+* Excellent problem-solving skills
+* Ability to work under pressure
+* Excellent people skills
+
+## Honors and Awards
+* University scholarship 2015 - 2020
+* Winner of Public Speaking Competition, Lcc International University, Klaipeda, Lithuenia, Winter of 2015
+* Participant of Youth Exchange Programme, Whales, The United Kingdom, Summer of 2013
+* Cambridge FCE certificate B2, 2013
