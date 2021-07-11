@@ -29,3 +29,9 @@
 * Winner of Public Speaking Competition, Lcc International University, Klaipeda, Lithuenia, Winter of 2015
 * Participant of Youth Exchange Programme, Whales, The United Kingdom, Summer of 2013
 * Cambridge FCE certificate B2, 2013
+
+## Interests
+* Learning new Languages
+* Reading
+* Psychology
+* Philosophy
